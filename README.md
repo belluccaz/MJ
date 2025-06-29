@@ -10,4 +10,4 @@ Seja qual for o motivo pelo qual você está lendo isso, saiba que estou aqui pa
 
 Com todo o meu carinho,
 
-Lucas
+Lucas Bellucci Almendra
